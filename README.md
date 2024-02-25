@@ -8,6 +8,8 @@ I personally love horror movies, and most Stanley Kubrick movies, like The Shini
 
 My Favorite Shows are also old-timey shows, like Adam-12 and The Andy Griffith Show, but I also love newer-ish shows like King of the Hill, Stranger Things, The Simpsons, and House M.D.
 
+Last but not least, my favorite games are Boneworks/Bonelab, DOOM, GTA, Garry's Mod, Half-Life 2, Portal, and POSTAL 2.
+
 # My Work
 
 ## YouTube
